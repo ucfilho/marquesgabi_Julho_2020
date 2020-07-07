@@ -1,1 +1,0 @@
-# marquesgabi_Julho_2020
